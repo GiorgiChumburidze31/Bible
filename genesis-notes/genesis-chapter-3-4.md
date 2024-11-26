@@ -86,10 +86,35 @@ In this verse God is punishing the woman for her act by bringin sorrow and conce
 
 `...desire to thy husband, and he shall rule over thee`
 
+ქართულ ბიბლიაში, ახალ აღთქმაში `DESIRE` არის ნახსენები როგორც ტოლვად. ანუ კაცდან თანაბრად ყოფნად, მაგრამ დღის ბოლოს იგი მაინც იბატონებს შენზე. 
+
+ხოლო კი ძველ აღთქმაში იგი ნახსნებია "მიქცევაი" ანუ შეიძლება ითქვას რომ იგივე `DESIRE`...
+
 The word `desire` has 2 interpertations 
 
 *  It can mean longing or dependency on her husband, possibly reflecting a distorted dynamic introduced by sin.
 * Can interpret this as a reference to a relational struggle or conflict, where the woman desires to control or dominate her husband.
 
 
-We can clearly see that God is putting the man in the position to take charge and "RULE" over the woman. 
+We can clearly see that God is putting the man in the position to take charge and "RULE" over the woman. This does not mean that woman is inferior. It is their job to do so! 
+
+**The Text: Ephesians 5:24 (KJV):**
+
+22 Wives, submit yourselves unto your own husbands, as unto the Lord.
+
+23 For the husband is the head of the wife, even as Christ is the head of the church: and he is the saviour of the body.
+
+24 Therefore as the church is subject unto Christ, so let the wives be to their own husbands in every thing.
+
+```
+1. Submission in Marriage (Verses 22–24)
+
+Definition of Submission: The Greek term for "submit" (hypotassō) carries the idea of willingly placing oneself under another’s leadership. It does not imply inferiority but order and cooperation within relationships.
+
+As Unto the Lord: The submission is "as unto the Lord," indicating that this is part of a broader act of obedience to God, not blind subservience to the husband.
+
+Husband as Head: The husband is described as the "head" of the wife, analogous to Christ as the head of the church. This headship involves responsibility and care, not domination.
+
+
+
+```
