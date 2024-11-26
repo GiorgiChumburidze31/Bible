@@ -47,8 +47,60 @@ Gen 2:14, NKJV
 
 God said that it was not good for the man to be alone, so he decided to create a helper to `meet him.` However, after all the effors, Adam was not able to find a helper comparable to him. 
 
-Therefore, God put Adam to deep sleep took one of his ribs.
+>Gen 2:18 And the LORD God said, It is not good that the man should be alone; I will make him an help meet for him.
 
+In the following verse we can see that woman is being created as a helper to a man. The following is not `degrading` or `making the woman sub-ordinate what so ever.` The following conclusion can be drawn from the fact that in the Bible, there are many references to `GOD himself` being reffered to as a `helper.`
+
+```
+
+Old Testament
+Exodus 18:4
+"...and the other was named Eliezer, for he said, ‘My father’s God was my helper; he saved me from the sword of Pharaoh.’"
+
+Deuteronomy 33:29
+"Blessed are you, Israel! Who is like you, a people saved by the Lord? He is your shield and helper and your glorious sword."
+
+Psalm 10:14
+"But you, God, see the trouble of the afflicted; you consider their grief and take it in hand. The victims commit themselves to you; you are the helper of the fatherless."
+
+Psalm 28:7
+"The Lord is my strength and my shield; my heart trusts in him, and he helps me."
+
+Psalm 33:20
+"We wait in hope for the Lord; he is our help and our shield."
+
+Psalm 46:1
+"God is our refuge and strength, an ever-present help in trouble."
+
+Psalm 54:4
+"Surely God is my help; the Lord is the one who sustains me."
+
+Psalm 70:5
+"But as for me, I am poor and needy; come quickly to me, O God. You are my help and my deliverer; Lord, do not delay."
+
+Psalm 121:1-2
+"I lift up my eyes to the mountains—where does my help come from? My help comes from the Lord, the Maker of heaven and earth."
+
+Isaiah 41:10
+"So do not fear, for I am with you; do not be dismayed, for I am your God. I will strengthen you and help you; I will uphold you with my righteous right hand."
+
+Isaiah 41:13
+"For I am the Lord your God who takes hold of your right hand and says to you, ‘Do not fear; I will help you.’"
+
+New Testament
+John 14:16
+"And I will ask the Father, and he will give you another Helper, to be with you forever." (referring to the Holy Spirit)
+
+John 14:26
+"But the Helper, the Holy Spirit, whom the Father will send in my name, will teach you all things and remind you of everything I have said to you."
+
+Hebrews 13:6
+"So we say with confidence, ‘The Lord is my helper; I will not be afraid. What can mere mortals do to me?’"
+```
+
+
+---
+Therefore, God put Adam to deep sleep took one of his ribs.
 ```
 Gen 2:22 And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man. 
 
