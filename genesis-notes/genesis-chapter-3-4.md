@@ -19,15 +19,39 @@
 
 In this chapter we see the `"SERPANT"` being introduced in the Bible. Serpant is defined as a `"subtil beast,"` which simply meant cunning, and decieving. 
 
-Serpant succsesfully convinces Eve to eat the fruit from the tree that is in the midst of the garden. After the following, Eve also manages to get Adam to get a taste of the fruit, they both become aware of their nakedeness. They cover themselves up and decide to hide themselves from God. 
+Serpant succsesfully convinces Eve to eat the fruit from the tree that is in the midst of the garden. It is also important to note that Eve is the one who gets approached first, not Adam. We must remember that upon creation, Eve's job is to be a helper of Adam. 
+
+> Gen 2:18 And the LORD God said, It is not good that the man should be alone; I will make him an help meet for him.
+
+However, `Eve decides to make decisions without approaching Adam,` and the serpant also takes advantage of the woman in `absence of Adam by asking provocative questions.` Bringing fourth temptation. 
+
+First issue is that Eve is alone. 
+
+Second issue is that she twists God's words.
+
+After the following, Eve also manages to get Adam to get a taste of the fruit, they both become aware of their nakedeness. They cover themselves up and decide to hide themselves from God. 
 
 `(We see Adam and Eve disobeying God's strictly given orders by eating the forbidden fruit, which introduces sin into our current world)`
 
 God finds about their actions, and decides to punish the woman and the man, each role recieveing their own punishment. Ultimatelly, Adam and Eve are both banished from the Garden of Eden. 
 
+---
+### What was the issue from eating from the tree of knowledge of good and bad? 
+
+The issue was that at the time of Adam and Eve's creation. `God was the only one who knew what good and evil was.`
+
+ Humans still had the factor of choice, and were still like God in some sense. Again, God created a man in his image, not `COMPLETELY in his image.` 
+ 
+ The issue with eating the tree of knowledge of good and evil was the fact that Adam and Eve tried to acquire something that God did not intend for them to have. 
+
+When a human, takes the responsibility of deciding what's good and what's evil upon himself, this is where things go wrong. 
 
 
 
+
+
+
+---
 ### **Verse 12**
 > *"And the man said, The woman whom thou gavest to be with me, she gave me of the tree, and I did eat."*
 
@@ -65,4 +89,7 @@ In this verse God is punishing the woman for her act by bringin sorrow and conce
 The word `desire` has 2 interpertations 
 
 *  It can mean longing or dependency on her husband, possibly reflecting a distorted dynamic introduced by sin.
-* Others interpret this as a reference to a relational struggle or conflict, where the woman desires to control or dominate her husband.
+* Can interpret this as a reference to a relational struggle or conflict, where the woman desires to control or dominate her husband.
+
+
+We can clearly see that God is putting the man in the position to take charge and "RULE" over the woman. 
